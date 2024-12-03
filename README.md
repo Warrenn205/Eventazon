@@ -1,1 +1,1 @@
-![Eventazon Logo (White)](https://github.com/user-attachments/assets/35d44e38-19ac-41ed-85b8-4e2286571e7b)
+![Eventazon](https://github.com/user-attachments/assets/45a13499-afb7-4857-a1ec-a17903d12d52)
